@@ -4,6 +4,8 @@
 
  [vk link](https://m.vk.com/danilovali)
  
- [alt-photo](https://pp.userapi.com/c824503/v824503271/6d1db/Wjb66QMwNIk.jpg)
+ ![alt-photo](https://pp.userapi.com/c824503/v824503271/6d1db/Wjb66QMwNIk.jpg)
+ 
+ 
  
  
